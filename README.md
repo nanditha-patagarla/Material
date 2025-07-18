@@ -1,1 +1,1 @@
-# Material
+# I am attending training sessions
